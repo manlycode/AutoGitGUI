@@ -18,7 +18,7 @@
 >### **Want to become a collaborator on this project? Send me a text, email, or Snap!**
 >>|Social|Contact| Response time |
 >>| ----------- | ----------- |----------- |
->>| Phone | 616-841-8985 | Immediately/as soon as I have my phone if a text is sent. Calls may not be picked up.
+>>| Phone | 616-841-8985 | Immediately/as soon as look at my phone if a text is sent. Calls may not be picked up.
 >>| Snapchat | Cpeel147 | Most likely immediately, send a message through chat. Not a picture. Most pictures don't get opened.
 >>| Email | [Carterpeel@gmail.com](mailto:carterpeel@gmail.com) | Email is checked roughly once every day or two. Don't be surprised if it takes a minute for me to reply.
 
