@@ -1,4 +1,3 @@
-
 ># What is AutoGit? 
  >- AutoGit is an extremely **user friendly simplified** GitHub   
    repository creation and fetching **visual tool** that provides users 
